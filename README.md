@@ -1,5 +1,4 @@
-# ⭐Taiwan
-**An Anti-Imperialist Resource**
+# ⭐Taiwan: An Anti-Imperialist Resource
 
 *Qiao Collective*
 
